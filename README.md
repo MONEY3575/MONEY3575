@@ -1,1 +1,1 @@
-lThis is an anonymous user friendly marketplace by vendors for vendors. We don't ask for any personal information. Crypto accepted payments only, both escrow and FE. No KYC. Shop safely and everything is encrypted for your protection
+This is an anonymous user friendly marketplace by vendors for vendors. We don't ask for any personal information. Crypto accepted payments only, both escrow and FE. No KYC. Shop safely and everything is encrypted for your protection
